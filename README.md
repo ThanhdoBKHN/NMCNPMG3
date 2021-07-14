@@ -1,2 +1,3 @@
-# NMCNPM-TeamLOL
-thằng ngu huy :))
+# NMCNPM
+Group 3
+This is messi awww
